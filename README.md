@@ -1,6 +1,6 @@
 ## Hi I am Shuvra Chakrabarty 
 
-### You can use this link -  [My GitHub](https://https://github.com/shuvra-matrix) to view my github profile.
+### You can use this link -  [My GitHub](https://github.com/shuvra-matrix) to view my github profile.
 
 
 #### My Section 
